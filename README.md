@@ -32,3 +32,5 @@ We The North isn’t just a marketplace—it’s a community. Browse “we the n
 
 
 If *trust*, *ease of use*, and *reliable Canadian service* are your priorities, just remember: “we the north reddit” points directly to the official access—**http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion**—for a reason.
+
+Update:  18 September
